@@ -4,6 +4,7 @@
 - Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 - Find Sundarban's Chanda Mafi letter 2024-05-08  
 - Send the grant of Patuakhali and Jagadal ~30 2024-05-08  
+- Index collected Proposed Budgets  
 
 ## Today
 
