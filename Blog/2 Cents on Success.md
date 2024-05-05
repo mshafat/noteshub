@@ -43,4 +43,8 @@ So my young relative thinks once he earns a good sum of money by doing hard work
 
 I said it won't happen as I learned another characteristic of success that contradicts with this thought...
 
-And it is from Jim Rohn, 
+And it is from Jim Rohn but I learned it from Darren Hardy. In one of his Darren Daily he said to his mentor that I want to achieve this and that and his mentor Jim Rohn said, "You can't" because:
+
+> Success is not something you pursue. What you pursue will elude you, it can be like trying to chase butterflies. Success is something you attract by the person you become.
+
+In a nutshell, you have to develop yourself so that you can become a person of value with a predetermined goal and success will be attracted toward you. 
