@@ -6,7 +6,7 @@
 - Supply Saleh Ahmad Sb the requested documents on Salary  
 - Send the grant of Patuakhali and Jagadal ~30  
 - Reconcile receipt books and head wise breakup  
-- Find Sundarban's Chanda Mafi letter 2024-05-07  
+- Find Sundarban's Chanda Mafi letter  
 - Index collected Proposed Budgets  
 
 ## Done
