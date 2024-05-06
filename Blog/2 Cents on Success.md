@@ -47,4 +47,13 @@ And it is from Jim Rohn but I learned it from Darren Hardy. In one of his Darren
 
 > Success is not something you pursue. What you pursue will elude you, it can be like trying to chase butterflies. Success is something you attract by the person you become.
 
-In a nutshell, you have to develop yourself so that you can become a person of value with a predetermined goal and success will be attracted toward you. 
+In a nutshell, you have to develop yourself so that you can **become** a person of value with a predetermined goal and success will be attracted toward you. 
+
+Now if you are finding it complex to understand, here's I recommend a few simple steps to understand what you need to do.
+
+## Steps to Take
+1. Find your passion: Find what makes you happy to do and how you can help more people with that. 
+2. Visualize the person: Visualize the person you want to become. 
+3. Do the necessaries: Do whatever it takes to do to become that person and help those people you want to serve. 
+4. Keep your focus sharp: Until you become the person you visualized to be, keep your dream alive and put consistent actions.
+5. Wait for the result: Wait for the the result compounded over time. 
