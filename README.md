@@ -1,2 +1,0 @@
-# noteshub
-NotesHub Notebook
