@@ -10,6 +10,6 @@
 ## Done
 - Send chalan of 07.05.2024  
 - Process the parcel of Shalshiri, Bhatgaon  
-- Send the grant of Patuakhali and Jagadal ~30  
+- Send the grant of Patuakhali and Jagadal  
 - 15452Tk bKash Cash-In Korte hobe  
 - Supply Saleh Ahmad Sb the requested documents on Salary  
