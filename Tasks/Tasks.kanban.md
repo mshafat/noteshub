@@ -4,7 +4,6 @@
 
 ## Today
 - Process the parcel of Shalshiri, Bhatgaon  
-- Send the grant of Patuakhali and Jagadal ~30  
 - Reconcile receipt books and head wise breakup  
 - Find Sundarban's Chanda Mafi letter  
 - Index collected Proposed Budgets  
@@ -12,4 +11,5 @@
 
 ## Done
 - Send chalan of 07.05.2024  
+- Send the grant of Patuakhali and Jagadal ~30  
 - Supply Saleh Ahmad Sb the requested documents on Salary  
