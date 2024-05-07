@@ -3,7 +3,6 @@
 - Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 
 ## Today
-- Supply Saleh Ahmad Sb the requested documents on Salary  
 - Send the grant of Patuakhali and Jagadal ~30  
 - Reconcile receipt books and head wise breakup  
 - Find Sundarban's Chanda Mafi letter  
@@ -11,3 +10,4 @@
 - Process the parcel of Shalshiri  
 
 ## Done
+- Supply Saleh Ahmad Sb the requested documents on Salary  
