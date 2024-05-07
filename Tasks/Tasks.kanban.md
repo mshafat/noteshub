@@ -8,5 +8,6 @@
 - Reconcile receipt books and head wise breakup  
 - Find Sundarban's Chanda Mafi letter  
 - Index collected Proposed Budgets  
+- Process the parcel of Shalshiri  
 
 ## Done
