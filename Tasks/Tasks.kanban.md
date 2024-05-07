@@ -3,9 +3,9 @@
 - Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 
 ## Today
+- Index collected Proposed Budgets  
 - Reconcile receipt books and head wise breakup  
 - Find Sundarban's Chanda Mafi letter  
-- Index collected Proposed Budgets  
 
 ## Done
 - Send chalan of 07.05.2024  
