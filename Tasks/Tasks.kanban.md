@@ -8,7 +8,7 @@
 - Find Sundarban's Chanda Mafi letter  
 - Index collected Proposed Budgets  
 - Process the parcel of Shalshiri  
-- Send chalan of 07.05.2024  
 
 ## Done
+- Send chalan of 07.05.2024  
 - Supply Saleh Ahmad Sb the requested documents on Salary  
