@@ -40,6 +40,9 @@ I have got a feeling that even if I don't have a reason to save money like this 
 
 And some people may get the benefits of this habit...
 
+> [!Remember]
+> I have to save some money on conveyance by walking on short distance, even when I need not to, and spend the savings for donations to charity. 
+
 May Allah help me remember this when I will have got the luxury...
 
 ~ Shafat 
