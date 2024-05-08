@@ -10,6 +10,6 @@
 - Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
-- Khudrapara has sent 2000tk which will be issued on Chanda Aam  
+- Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam  
 
 ## Done
