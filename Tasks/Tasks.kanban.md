@@ -8,5 +8,6 @@
 - Reconcile head wise breakup  
 - Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
+- Reconcile receipt books pages with Daybook  
 
 ## Done
