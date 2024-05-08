@@ -12,4 +12,3 @@
 - Process the parcel of Shalshiri, Bhatgaon  
 - Send the grant of Patuakhali and Jagadal  
 - 15452Tk bKash Cash-In Korte hobe  
-- Supply Saleh Ahmad Sb the requested documents on Salary  
