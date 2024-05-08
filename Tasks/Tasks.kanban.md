@@ -9,5 +9,6 @@
 - Reconcile head wise breakup w/ ACMT  
 - Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
+- Organize and Transfer the daybooks on my desk by providing receipt issue date  
 
 ## Done
