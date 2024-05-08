@@ -3,8 +3,8 @@
 - Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 
 ## Today
-- Reconcile receipt books and head wise breakup  
 - Index collected Proposed Budgets  
+- Reconcile receipt books and head wise breakup  
 - Find Sundarban's Chanda Mafi letter  
 
 ## Done
