@@ -9,5 +9,3 @@
 
 ## Done
 - Send chalan of 07.05.2024  
-- Process the parcel of Shalshiri, Bhatgaon  
-- Send the grant of Patuakhali and Jagadal  
