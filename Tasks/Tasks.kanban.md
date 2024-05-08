@@ -5,9 +5,9 @@
 - Have to issue a receipt of Tk.50 for Kustia (Ref-Online: 15.04.24 Tk.16075, R/N-77936 Tk.16025/-)  
 
 ## Today
+- Reconcile receipt books pages with Daybook  
 - Reconcile head wise breakup  
 - Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
-- Reconcile receipt books pages with Daybook  
 
 ## Done
