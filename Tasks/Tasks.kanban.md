@@ -6,7 +6,7 @@
 
 ## Today
 - Reconcile receipt books pages with Daybook  
-- Reconcile head wise breakup  
+- Reconcile head wise breakup w/ ACMT  
 - Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
 
