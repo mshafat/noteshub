@@ -1,0 +1,1 @@
+Context Awareness: People usually have high context awareness, but AI don't have this feat. If your question requires an understanding of the context. Then you cannot converse with an AI Bot more than 2-3 sentences, it will go out of the context in between. 
