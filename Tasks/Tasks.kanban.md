@@ -6,10 +6,10 @@
 
 ## Today
 - Reconcile head wise breakup w/ ACMT  
-- Index collected Proposed Budgets  
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 
 ## Done
 - Reconcile receipt books pages with Daybook  
+- Index collected Proposed Budgets  
