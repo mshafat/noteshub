@@ -12,4 +12,4 @@
 
 ## Done
 - Reconcile receipt books pages with Daybook  
-- Index collected Proposed Budgets  
+- Count collected Proposed Budgets  
