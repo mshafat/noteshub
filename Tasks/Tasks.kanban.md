@@ -10,6 +10,7 @@
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
+- Scan and send Audit letters  
 
 ## Done
 - Reconcile receipt books pages with Daybook  
