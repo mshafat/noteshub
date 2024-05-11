@@ -12,6 +12,7 @@
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Scan and send Audit letters  
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
+- Call my list for budget and shura implementation report fill-up  
 
 ## Done
 - Reconcile receipt books pages with Daybook  
