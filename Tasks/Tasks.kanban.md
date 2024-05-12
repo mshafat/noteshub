@@ -12,6 +12,7 @@
 - Scan and send Audit letters  
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
+- Watering the plant  
 
 ## Done
 - Reconcile receipt books pages with Daybook  
