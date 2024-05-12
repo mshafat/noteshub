@@ -14,8 +14,8 @@
 
 ## Done
 - Watering the plant  
-- Prepare the bill for Battery Purchase  
 - Scan and send Audit letters  
+- Prepare the bill for Battery Purchase  
 
 ## Archive
 - Count collected Proposed Budgets  
