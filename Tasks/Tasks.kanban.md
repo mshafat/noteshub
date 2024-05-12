@@ -13,8 +13,8 @@
 - Call my list for budget and shura implementation report fill-up  
 
 ## Done
-- Prepare the bill for Battery Purchase  
 - Watering the plant  
+- Prepare the bill for Battery Purchase  
 - Scan and send Audit letters  
 
 ## Archive
