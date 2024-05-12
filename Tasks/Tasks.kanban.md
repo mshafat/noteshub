@@ -8,13 +8,13 @@
 - Reconcile head wise breakup w/ ACMT  
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
-- Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
 
 ## Done
 - Watering the plant  
 - Scan and send Audit letters  
+- Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Prepare the bill for Battery Purchase  
 
 ## Archive
