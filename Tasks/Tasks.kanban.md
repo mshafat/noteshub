@@ -13,9 +13,9 @@
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
 - Watering the plant  
-- Prepare the bill for Battery Purchase  
 
 ## Done
+- Prepare the bill for Battery Purchase  
 
 ## Archive
 - Count collected Proposed Budgets  
