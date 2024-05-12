@@ -11,10 +11,10 @@
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
-- Watering the plant  
 
 ## Done
 - Prepare the bill for Battery Purchase  
+- Watering the plant  
 - Scan and send Audit letters  
 
 ## Archive
