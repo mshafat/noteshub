@@ -26,23 +26,24 @@ In Triset 1, complete 12-15 reps of the first two exercises, and then 6-8 reps p
 In Triset 2, complete 12-15 reps per side of the first exercise and 12-15 reps of the second. Hold the high plank for 30-60 seconds. Complete 2-3 rounds total.
 
 ## Glute bridge
-
+![image]()
 
 
 ## Incline push-up
-
+![image]()
 
 
 ## I-Y-T raise
-
+![image]()
 
 
 ## Alternating reverse lunge
-
+![image]()
 
 
 ## Superman pull-down
-
+![image]()
 
 
 ## High plank
+![image]()
