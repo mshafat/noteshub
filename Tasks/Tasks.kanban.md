@@ -11,6 +11,7 @@
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
 - Mirpur receipt is in my bag, have to issue the receipt  
+- Issue Syedpur Bagmaras this month and last month's receipt  
 
 ## Done
 - Watering the plant  
