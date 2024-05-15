@@ -13,12 +13,12 @@
 - Issue Syedpur Bagmaras this month and last month's receipt  
 
 ## Done
-- Watering the plant  
 - Scan and send Audit letters  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Prepare the bill for Battery Purchase  
 
 ## Archive
+- Watering the plant  
 - Count collected Proposed Budgets  
 - Prepare a bill amounting Tk.220/- for entertainment Dev Meeting. Attended 6. Clemon 6x20, Roll 100tk total 220tk  
 - Mirpur receipt is in my bag, have to issue the receipt  
