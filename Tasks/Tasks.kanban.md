@@ -11,6 +11,7 @@
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
+- Pay the bill in my draw through bKash  
 
 ## Done
 
