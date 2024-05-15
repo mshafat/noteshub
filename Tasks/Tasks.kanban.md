@@ -13,10 +13,10 @@
 - Issue Syedpur Bagmaras this month and last month's receipt  
 
 ## Done
-- Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Prepare the bill for Battery Purchase  
 
 ## Archive
+- Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Scan and send Audit letters  
 - Watering the plant  
 - Count collected Proposed Budgets  
