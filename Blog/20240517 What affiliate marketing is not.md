@@ -20,4 +20,8 @@ Then I shed some lights on affiliate marketing to prove that I am in a way bette
 
 And this made him started to listen...
 
-I saw that he is no
+Then we got connected in Facebook and I saw that he has only a handful of friends and he is posting like crazy, with zero engagement in those posts...
+
+Now after talking for a week or two I realized his perception of affiliate marketing is very different than what I perceive this day...
+
+
