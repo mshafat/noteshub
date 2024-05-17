@@ -6,7 +6,6 @@
 
 ## Today
 - Pay the bill in my draw through bKash  
-- Reconcile head wise breakup w/ ACMT  
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Call my list for budget and shura implementation report fill-up  
@@ -17,6 +16,7 @@
 
 ## Archive
 - Prepare the bill for Battery Purchase  
+- Reconcile head wise breakup w/ ACMT  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Scan and send Audit letters  
 - Watering the plant  
