@@ -17,7 +17,6 @@
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Prepare the bill for Battery Purchase  
 - Reconcile head wise breakup w/ ACMT  
-- Donate Blood to Mobarak Ahmad Manik  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
 - Scan and send Audit letters  
 - Watering the plant  
