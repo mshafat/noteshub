@@ -9,6 +9,7 @@
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
+- Prepare budget transfer letter Fatullah  
 
 ## Done
 - Pay the bill in my draw through bKash  
