@@ -12,9 +12,9 @@
 - Issue Syedpur Bagmaras this month and last month's receipt  
 
 ## Done
-- Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 
 ## Archive
+- Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Prepare the bill for Battery Purchase  
 - Reconcile head wise breakup w/ ACMT  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
