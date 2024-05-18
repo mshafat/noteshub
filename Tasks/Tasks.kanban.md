@@ -5,13 +5,13 @@
 - Have to issue a receipt of Tk.50 for Kustia (Ref-Online: 15.04.24 Tk.16075, R/N-77936 Tk.16025/-)  
 
 ## Today
-- Pay the bill in my draw through bKash  
 - Find Sundarban's Chanda Mafi letter  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
 
 ## Done
+- Pay the bill in my draw through bKash  
 
 ## Archive
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
