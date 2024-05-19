@@ -14,6 +14,7 @@
 - Prepare salary certificates for UK Jalsa Delegates  
 - Send Chalan and one Transfer Letter  
 - Print a sample of Proposed Budget 2024-25 BN  
+- Submit the requisition form to GS Department  
 
 ## Done
 - Pay the bill in my draw through bKash  
