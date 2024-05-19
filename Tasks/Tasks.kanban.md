@@ -11,6 +11,7 @@
 - Issue Syedpur Bagmaras this month and last month's receipt  
 - Prepare budget transfer letter Fatullah  
 - Issue due receipts  
+- Prepare salary certificates for UK Jalsa Delegates  
 
 ## Done
 - Pay the bill in my draw through bKash  
