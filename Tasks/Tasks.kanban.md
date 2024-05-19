@@ -10,6 +10,7 @@
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
 - Prepare budget transfer letter Fatullah  
+- Issue due receipts  
 
 ## Done
 - Pay the bill in my draw through bKash  
