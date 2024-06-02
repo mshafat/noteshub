@@ -5,7 +5,6 @@
 
 ## Today
 - Find Sundarban's Chanda Mafi letter  
-- Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
 - Prepare budget transfer letter Fatullah  
@@ -21,6 +20,7 @@
 
 ## Archive
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
+- Organize and Transfer the daybooks on my desk by providing receipt issue date  
 - Prepare the bill for Battery Purchase  
 - Reconcile head wise breakup w/ ACMT  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
