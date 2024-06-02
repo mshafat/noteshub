@@ -8,7 +8,6 @@
 - Call my list for budget and shura implementation report fill-up  
 - Issue Syedpur Bagmaras this month and last month's receipt  
 - Prepare budget transfer letter Fatullah  
-- Issue due receipts  
 - Prepare salary certificates for UK Jalsa Delegates  
 - Send Chalan and one Transfer Letter  
 - Print a sample of Proposed Budget 2024-25 BN  
@@ -21,6 +20,7 @@
 ## Archive
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
+- Issue due receipts  
 - Prepare the bill for Battery Purchase  
 - Reconcile head wise breakup w/ ACMT  
 - Khudrapara has sent 2000tk through bKash which will be issued on Chanda Aam @08.05.24  
