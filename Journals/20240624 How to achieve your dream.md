@@ -53,6 +53,12 @@ What I have right now?
 12. Some proven, high quality products to recommend as an affiliate (already approved)
 13. Good testimonials from past clients and friends
 14. A secondary, and strategically aligned blog monetization strategy
-
+15. 1.5 hour time
+16. Laptop and smartphone
+17. Trusted Mentor
+18. 100% commission level
+19. Story telling, copywriting and DM skills 
+21. Artificial Intelligence at my leverage
+22. Technically savvy
 
 
