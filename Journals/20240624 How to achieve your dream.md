@@ -51,7 +51,8 @@ What I have right now?
 10. An email sequence
 11. A lifetime social image creator tool
 12. Some proven, high quality products to recommend as an affiliate (already approved)
-
+13. Good testimonials from past clients and friends
+14. A secondary, and strategically aligned blog monetization strategy
 
 
 
