@@ -7,6 +7,7 @@ He said, when it comes to goal setting, we always think of what we want to achie
 
 **WHAT PAIN ARE YOU GOING TO ENDURE?**
 
-This was the focus of the Darren Daily episode. He said if you shift from envisioning the dream outcome to enduring the pain necessary. This is what he said:
+This was the focus of the Darren Daily episode. He said to achieve your big goals you should shift your focus from envisioning the dream outcome to enduring the pain necessary. This was his advice:
 
 > Don't just choose the destination, choose the battle
+
