@@ -28,7 +28,29 @@ I can do it in Facebook or find traffic from SEO...
 
 The first one is more active and the latter is more passive...
 
-The former is more straight forward, the latter is more 
+The former is more straight forward, the latter is more sophisticated...
+
+But if I start to thinking about these, I can't stop thinking it and can't make any progress....
+
+So in order to succeed I have to think differently...
+
+**What can I do right now with what I have with me to make progress**
+
+If I answer this, I have to write the following:
+
+What I have right now?
+1. A domain name with 10 years validity 
+2. A blog with specific focus and appeal
+3. A logo
+4. A fast hosting
+5. An optimized Facebook profile with targeted audience
+6. A proven SEO course and some emerging SEO material to make it work
+7. An email list
+8. An auto responder with unlimited email sending capability
+9. A good lead magnet and opt in funnel
+10. An email sequence
+11. A lifetime social image creator tool
+12. Some proven, high quality products to recommend as an affiliate (already approved)
 
 
 
