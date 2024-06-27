@@ -1,6 +1,5 @@
 ## To-Do
 - Write the meeting minutes of Workshop with National Auditor  
-- Have to issue a receipt of Tk.2 for Isswardi (Ref-Online:17-04-24, Tk.35795, R/N-77926 Tk.75793, Difference Tk.2)  
 
 ## Doing
 - Find Sundarban's Chanda Mafi letter  
