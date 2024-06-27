@@ -14,9 +14,9 @@
 - Submit the requisition form to GS Department  
 
 ## Done
-- Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 
 ## Archive
+- Finalize the letter to huzoor for zakat approval (Firoz Alam sb)  
 - Pay the bill in my draw through bKash  
 - Give Bahrain's remittance acknowledgement letter to Robiul Bhai for NA's sign  
 - Organize and Transfer the daybooks on my desk by providing receipt issue date  
