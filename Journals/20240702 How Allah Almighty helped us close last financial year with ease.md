@@ -1,0 +1,3 @@
+The Financial Year 2023-24 just ended 1 day ago. The last day of the financial year 2023-24 was Sunday. For last few years I was in-charge of closing the remittance received in bank and bKash accounts. It is the busiest day as most Jama'ats send their collected chanda in this day and I have to track the head wise breakups and bank deposit sms and sometimes photos of cheques. Last year we stayed around 12:30am to complete all the chanda entry and reporting process. This year it was 1+ hours. But I have to say this year end was a smooth experience. So I want to write which part went well in this year that I would like to repeat in next year as well...
+
+## I 
