@@ -17,7 +17,24 @@ I went to office with a break in Tejgaon. I was in Tejgaon jama'at on 29th June 
 
 So I complete the plan this day. It was 11:30am when I reach office with the A4 papers. Then I started to look at the bank SMS. I started slow and by 3pm I completed 80% of the receipts of SMS in Bank but there are a few sms that we received around 5pm. At around 3pm, I stop for a while and started issuing receipts for bKash deposits. At this time bKash account went full so there were no scope for taking remittance in the account. I completed bKash flawlessly for that reason. 
 
-After bKash has been settled I put my full attention toward clearing the remaining deposits in Bank. By 7:30pm only 3-4 SMS remained to be taken care of. But there was a twist. Finance sb allowed to send chanda in his bKash account from onward. So it was a sudden pain. I got a bit nervous how would I manage it. But Allah helped. Actually I was not in a position to think for a moment and plan as my hand was running without any rest. But with some minimal effort I could manage to prepare an Excel to keep the information of forthcoming remittance in Finance Sb's bKash account. I also assigned Babul bhai to keep the Excel. I have to say, by the grace of Allah, he managed it well and with strong hand.  
+After bKash has been settled I put my full attention toward clearing the remaining deposits in Bank. By 8:00pm only 3-4 SMS remained to be taken care of. But there was a twist. Finance sb allowed to send chanda in his bKash account from onward. So it was a sudden pain. I got a bit nervous how would I manage it. There are a few things to manage actually...
+
+- I took the name of Jama'at who wished to pay in bKash but failed due to account limit issue.
+- Someone needs to communicate with those Jama'ats representative and convey Finance Secretary Sb's bKash number to send money.
+- As Finance sb was not present at that time, how could I ensure that the respective Jama'ats chanda went into his bKash or not?
+- How will I handle if there is any mismatch and if I fail to identify an amount?
+
+I got a bit tensed at that time but not for long. Because Allah helped. Actually I was not in a position to think for a moment and plan as my hand was running consistently without any rest. But with some minimal effort I could manage to prepare an Excel to keep the information of forthcoming remittance in Finance Sb's bKash account. I also assigned Babul bhai to keep the Excel. I have to say, by the grace of Allah, he managed it well and in strong hand.  And I announced my colleages to inform those Jama'ats that wished to send money through bKash the new number. I also could craft a message saying 
+
+"To cater the increasing demand, Finance Secretary Sb has given his bKash number 018XXXXXXX for temporary basis. Please share exact amount of chanda you are going to send to the account and also put your Jama'at name in the reference."
+
+Unlike other year end day, Finance Secretary Sb came late to join us this year. He reached at around 8:30 and then he joined force. 
+
+By this time a few Jama'ats also shared their photos of cheque to issue receipts. This year they were Mirpur, Sundarban, Dinajpur, Purulia, Ahmadnagar, Shalshiri, Ashkona, Chattogram. After issuing some of the receipts of cheque sat with Babul bhai, Finance Sb to match the money received in his bKash and tried to knock out one by one. There were 10+ receipts for those and then I focused on issuing receipts for cheques. 
+
+It felt like a never ending day with Jama'ats trying to reach us to pay chanda in bKash and here I am issuing receipts for the amounts. And on top of that I have to entry the issued receipt in Excel for reports before leaving. So there was a gigantic task left.
+
+But I also managed this reporting part 
 
 
 
