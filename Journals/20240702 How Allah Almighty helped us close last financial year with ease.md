@@ -13,7 +13,11 @@ This is how the final day of the year looked this year...
 
 I left home early at 10:30am but I have found that our home electricy went and there is -500 due in meter. And I couldn't recharge it using my bkash as I do it usually. I had no time to solve this issue so I left home without solving it. But it was a headache which stressed me for next 2 hours. 
 
-I went to office with a break in Tejgaon. I was in Tejgaon jama'at on 29th June 10:30am to 4:30pm to audit their last 3 months (April to June) collection and collect the cheque. I had a plan to purchase a light blue 
+I went to office with a break in Tejgaon. I was in Tejgaon jama'at on 29th June 10:30am to 4:30pm to audit their last 3 months (April to June) collection and collect the cheque. I had a plan to purchase a light blue color A4 papers that day but I couldn't as I had to come to Bakshibazar with a cash amounting roughly 22k in pocket. I couldn't follow the plan as I was tensed carrying the money and actually forget to purchase the A4 paper before taking off to Metro Rail. 
+
+So I complete the plan this day. It was 11:30am when I reach office with the A4 papers. Then I started to look at the bank SMS. I started slow and by 3pm I completed 80% of the receipts of SMS in Bank but there are a few sms that we received around 5pm. At around 3pm, I stop for a while and started issuing receipts for bKash deposits. At this time bKash account went full so there were no scope for taking remittance in the account. I completed bKash flawlessly for that reason. 
+
+After bKash has been settled I put my full attention toward clearing the remaining deposits in Bank. By 7:30pm only 3-4 SMS remained to be taken care of. But there was a twist. Finance sb allowed to send chanda in his bKash account from onward. So it was a sudden pain. I got a bit nervous how would I manage it. But Allah helped. Actually I was not in a position to think for a moment and plan as my hand was running without any rest. But with some minimal effort I could manage to prepare an Excel to keep the information of forthcoming remittance in Finance Sb's bKash account. I also assigned Babul bhai to keep the Excel. I have to say, by the grace of Allah, he managed it well and with strong hand.  
 
 
 
