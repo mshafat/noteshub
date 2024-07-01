@@ -32,9 +32,26 @@ Unlike other year end day, Finance Secretary Sb came late to join us this year. 
 
 By this time a few Jama'ats also shared their photos of cheque to issue receipts. This year they were Mirpur, Sundarban, Dinajpur, Purulia, Ahmadnagar, Shalshiri, Ashkona, Chattogram. After issuing some of the receipts of cheque sat with Babul bhai, Finance Sb to match the money received in his bKash and tried to knock out one by one. There were 10+ receipts for those and then I focused on issuing receipts for cheques. 
 
-It felt like a never ending day with Jama'ats trying to reach us to pay chanda in bKash and here I am issuing receipts for the amounts. And on top of that I have to entry the issued receipt in Excel for reports before leaving. So there was a gigantic task left.
+It felt like a never ending day with Jama'ats trying to reach us to pay chanda in bKash and here I am issuing receipts for the amounts. And on top of that I have to entry the issued receipt in Excel for reports before leaving. So there was a gigantic task left. I could finish issuing all the receipts by 12am and then started the Excel entry...
 
-But I also managed this reporting part 
 
+## How I managed the Excel Entry
+This year I updated Chanda Paid Status Update Excel almost everyday (sometimes every 2 days). This is how I did it. First I entry the receipts in TRANS and then make a pdf of Period Reports for the days remained to be entered into Excel. Then I entry the amounts in the PDF to the excel and after that I match June Month's collection in 3 heads in Excel to June Months Collection from periodic report of TRANS. This way I could ensure whether I am making a mistake or not. 
+
+I matched excel with trans till 29 June and kept a separate copy of the file and started 30 June. 
+
+Before Finance Sb shared his bKash number to receive chanda, I had some time to update the collection in TRANS. It was after Magrib (I think) and I updated all the issued reeipts till then in TRANS. Then I moved on to update the amount in Chanda Paid Status update and it matched in first instance, Alhamdulillah. 
+
+Then after 12am I put the remaining receipts directly in Excel bypassing TRANS update as we had shortage of time. I finalized the Excel by 12:30am, then Finance Secretary sb printed out a copy of the summary report to share with National Amir sb. We also postponed our dinner till 12:30am. Finance secretary sb didn't permit others to start taking the dinner although it was made ready by 10pm. So, when we started our dinner the warmth of the food went off...
+
+But it was a great dinner, I liked the taste of Kacchi Bhai's dinner, Alhamdulillah...
+
+We left office after 1am...
+
+And reached home at 1:30am...
+
+What a hectic and memorable day...
+
+Thanks to Almighty Allah for making the easy and manageable for us....
 
 
